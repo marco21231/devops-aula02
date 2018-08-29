@@ -11,3 +11,8 @@ mafia 3.
 League Of Legends
 Fortnite
 Counter Strike: Global Offensive
+
+----Ricardo Galdino----
+Tibia
+League Of Legends
+Granado Espada Online
