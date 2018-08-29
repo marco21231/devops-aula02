@@ -7,3 +7,7 @@ Battlefield V ,esperando o lanzamento.
 Far cry 3
 mafia 3.
 
+----Marco Vinicius Tavares ----
+League Of Legends
+Fortnite
+Counter Strike: Global Offensive
