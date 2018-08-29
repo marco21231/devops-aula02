@@ -15,3 +15,8 @@ Will Smith
 Katherine Heigl
 Jennifer Aniston
 Charlie Sheen
+
+----Ricardo Galdino----
+Neil Patrick Harris
+Kevin Spacey
+Matt LeBlanc
