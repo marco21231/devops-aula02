@@ -12,5 +12,6 @@ Emma watson
 
 ---- Marco Vinicius Tavares ----
 Will Smith
-Travis Fimmel
+Katherine Heigl
 Jennifer Aniston
+Charlie Sheen
