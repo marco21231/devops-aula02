@@ -11,3 +11,8 @@ OneRepublic - Apologize
 Post Malone - Psycho
 Lil Uzi Vert - XO Tour Life
 XXXTENTACION - SAD!
+
+----Ricardo Galdino----
+Led Zeppelin - Stairway To Heaven
+Guns N' Roses - Welcome To The Jungle
+Raffa Moreira - BRO
