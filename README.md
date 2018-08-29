@@ -3,8 +3,10 @@ AC 1 DEVOPS
 
 ---- Marco Antonio ----
 Tom Cruise
+Vin Diesel
+Kate Winslet
 Leonardo Dicaprio
-Kate 
+
 ----jose luis-----
 johnny Depp
 Megan _fox
